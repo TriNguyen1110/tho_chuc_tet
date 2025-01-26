@@ -25,7 +25,7 @@ Cả buổi không trò chuyện, dù chỉ là một lời <br>
 Anh cũng im lìm mà thấy mình chơi vơi <br>
  <br>
 Em kể rõ hơn rằng mọi việc ra sao <br>
-Anh nghe em kể thấy trong người thấy nôn nao <br>
+Anh nghe em kể, thấy trong người thấy nôn nao <br>
 Có một sự thật đó chính là ba em <br>
 Muốn người yêu em phải rời thật xa em <br>
 Và sẽ không bao giờ để yên chúng mình <br>
@@ -35,15 +35,15 @@ Nghèo như anh, sao chăm được tử tế <br>
 Và em dường như cố nói với ba em đủ điều <br>
 Dường như nói sẽ không bao giờ đủ nhiều <br>
 Em nép đầu, khẽ dựa vào lưng anh <br>
-Trời chẳng mưa, sao lưng áo anh vẫn ướt <br>
-Kìa em à, bầu trời chuyển sang xanh <br>
+Trời chẳng mưa, lưng áo anh vẫn ướt <br>
+Kìa em à, trời chuyển dần sang xanh  <br>
 Khi mặt trời núp nơi chân trời phía trước <br>
-Tại sao đỏ rực rỡ, nay lại thành tím biếc <br>
-Mối tình đẹp, mà nhiều điều luyến tiếc <br>
+Hoàng hôn đỏ rực rỡ, nay lại thành tím biếc <br>
+Mối tình ta đẹp, mà nhiều điều luyến tiếc <br>
 Nhìn xuống đất là bóng đổ hình ta <br>
 Trời sập tối, giờ đã khó nhìn ra <br>
  <br>
-Đến tối muộn, về nhà em anh đưa <br>
+Đến tối muộn, về nhà em có anh đưa <br>
 Ba mẹ em đừng chờ sẵn trước cửa <br>
 Ánh mắt ba em như muốn ăn tươi nuốt sống <br>
 Nhìn qua anh như một con chuột cống <br>
@@ -55,8 +55,8 @@ Anh ngước lên và thấy tường hơi cao <br>
 Vườn tiểu cảnh, cá koi đầy trong ao <br>
 Để xứng với em, anh đây phải làm sao? <br>
 Anh đứng chờ em mãi, chờ nghe tiếng em thưa <br>
-Anh biết rằng, sau hôm nay, ta sẽ không còn như xưa <br>
-Mới hôm trước hẹn nhau ta đón mùa hoa sữa <br>
+Anh biết rằng, sau hôm nay, ta không còn như xưa <br>
+Mới hôm trước hẹn nhau, ta đón mùa hoa sữa <br>
 Hôm nay anh, gục ngã dưới hàng mưa <br>
 Chắc gì sau này, ta gặp nhau được nữa <br>
-<br>
+ <br>
