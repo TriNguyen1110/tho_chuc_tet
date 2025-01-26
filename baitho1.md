@@ -1,6 +1,6 @@
 COMING SOON
 
-Anh hẹn em vào buổi chiều mùa hạ
+Anh hẹn em vào buổi chiều mùa hạ <br>
 Ôn lại những cung đường ta vẫn thường đi qua
 Anh nghiêng đầu rồi lắc đầu xuýt xoa
 Khi thấy em từ hành lang bước ra
